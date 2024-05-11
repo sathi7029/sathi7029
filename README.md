@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sathiruidas.it.aec@gmail.com**
 
-- ⚡ Fun fact **I stress over on not having stress**
+- ⚡ Fun fact **I stress over not having stress**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
